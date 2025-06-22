@@ -1,1 +1,0 @@
-# Givador.com
